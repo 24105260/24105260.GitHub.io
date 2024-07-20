@@ -4,5 +4,7 @@
 ## Experience in GNDEC Ludhiana 
 _First day_
 [Harinder web](https://24105260.github.io)
-
+|Subject|marks|
+|----|----|
+|Physics|96|
 
