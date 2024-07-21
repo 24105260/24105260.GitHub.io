@@ -22,4 +22,4 @@ Today is full of fun . Beacause today our class start at 11.00 am of codegne. In
 Experience of 17-7-24
 Today our class’s day. our first was of math in which learnt integration of 12 class . This class of 1.3o hour. After that our class was of UHV in which we leart about human being. After that there was a paper english. After that we join code gne . this is my all day in GNDEC.
 
-My certificate of excel
+
